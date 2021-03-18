@@ -4,6 +4,6 @@ campaign phrase
 motto of the day
 - fake it util you make it.
 
-list of my hero
+list of my idol
 - mark zuckerbag
 - steve jobs
